@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Work Opportunities or anything at all**
 
-- 📫 How to reach me **julianthewaterfish@gmail.com**
+- 📫 How to reach me **jpetrisky66@gmail.com**
 
 - 📄 See my Resume [https://docs.google.com/document/d/1WXaiyDNdV_ayTO99JGI4U0d0nso1NqtABfKHW5yv5-I](https://docs.google.com/document/d/1WXaiyDNdV_ayTO99JGI4U0d0nso1NqtABfKHW5yv5-I)
 
